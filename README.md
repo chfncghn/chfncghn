@@ -1,3 +1,3 @@
 Hello Welcome AgentHackers page
 
-Please start our resporities if it's good
+Please be kind enough to star our projects..
